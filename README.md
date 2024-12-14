@@ -1,6 +1,6 @@
-# <a href="https://rb.gy/jjdenr">Canlı Maç izlemek İçin Tıkla</a>
+# <a href="https://rb.gy/o5g4k5">Canlı Maç izlemek İçin Tıkla</a>
 
-<a href="https://rb.gy/jjdenr">
+<a href="https://rb.gy/o5g4k5">
   
 | Maç 1 | Maç 2 | Maç 3 |
 |----------|----------|----------|
